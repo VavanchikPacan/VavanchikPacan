@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Vavanch1kPacan
 - 👀 I’m interested in box)
 - 🌱 I’m currently l3arning 
-- 💞️ I’m looking to collaborate on ...,kit876rtdtwae6urygh
+- 💞️ I’m looking to collaborate on ...,uy679r8ftyuinjp0uhgyuyhj
 - 📫 How to reach me ...fgyhnj
 - 😄 Pronouns: ...
 - ⚡ Fun fact: kngfytedrseghte
