@@ -2,7 +2,7 @@
 - 👀 I’m interested in box)
 - 🌱 I’m currently l3arning 
 - 💞️ I’m looking to collaborate on ...mnhjn gn 
-- 📫 How to reach me ...fgyhnj
+- 📫 How to reach me ...dretfvgiuilkl
 - 😄 Pronouns: ...
 - ⚡ Fun fact: kngfytedrseghte
 <!---
